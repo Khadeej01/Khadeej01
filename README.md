@@ -112,7 +112,7 @@ Highlights: Created a visually striking template with scroll-triggered animation
 📬 Get in Touch
 
 
-LinkedIn: linkedin.com/in/khadija-oukhlift-736871353
+LinkedIn: khadija-oukhlift-736871353
 
 
 Email: khadijaoukhlift@gmail.com
